@@ -1,19 +1,17 @@
-                                         
-       ****                                         
-         *****                                      
-       *****                                                              
-     ****            *****            
-    ****              *******
-    ****               ********
-    ****              ***********
-     ******        ******** *****
-      *****      *******    ******
-       *******  ******
-         *******        
-         **  **********   ***
-      *****       *******   *****
-    ****                         ***
-                                   ****
+            *
+           ***
+            **
+                  ** 
+        **            *
+      *** *          **
+            *       ** 
+              *    **
+     **        * **
+   **   *******   *   
+ **       
+
+                             
+                
 
 Once upon a time, there was a helicopter called the mil v12. It used by the Ussr to transport nukes around the soviet union.
 It has 2 rotors with 5 blades each and has 4 turboshaft engine. It can carry 200 passengers. One day....
