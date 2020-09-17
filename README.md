@@ -1,3 +1,5 @@
-# the dinoflagellate
-` The dinoflagellate is capitalist and gei.Buy Samsung phone here ( www.samsung.com) Buy the note 20 ultra.
-If you do not support you are also gei.
+# *#0*#
+`I like take apart phone
+ Buy Samsung phone here (samsung.com)
+ If you are apple user cockster then just get away.
+ Comunism
